@@ -1,0 +1,1 @@
+# Killnight_QR_Samsung
