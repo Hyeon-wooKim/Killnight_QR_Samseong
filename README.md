@@ -1,1 +1,1 @@
-# Killnight_QR_Samsung
+# Killnight_QR_Samseong
